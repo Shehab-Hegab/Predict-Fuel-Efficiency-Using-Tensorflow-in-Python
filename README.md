@@ -33,7 +33,6 @@
 
 
 
-![image](https://github.com/user-attachments/assets/433e9235-72e7-4476-8450-fe4156c76e43)
 
 
 
